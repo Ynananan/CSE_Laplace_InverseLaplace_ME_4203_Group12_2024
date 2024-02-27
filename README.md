@@ -1,4 +1,4 @@
-![Remo, Kheben P  - Assignment 1](https://github.com/Ynananan/CSE_Laplace_InverseLaplace_ME_4203_Group12_2024/assets/159511899/886a6de1-a73e-4882-b9da-8439d41d757b)Assignment 1
+Assignment 1
 Balazon, Shaina Mae L.
 ![429609820_3651120928476755_7113382741211730492_n](https://github.com/Ynananan/CSE_Laplace_InverseLaplace_ME_4203_Group12_2024/assets/161391661/8cb1ddf7-dd87-494f-a3b6-49fe8febe85f)
 ![429602386_688652826678249_6709646333674708497_n](https://github.com/Ynananan/CSE_Laplace_InverseLaplace_ME_4203_Group12_2024/assets/161391661/3b1fa0a1-7101-453a-a4a8-ac180d92e8a2)
