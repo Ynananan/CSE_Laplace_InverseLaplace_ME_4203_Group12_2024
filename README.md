@@ -27,3 +27,14 @@ Assignment 2
 Remo, Kheben P.
 ![Remo, Kheben P  -Assignment 2](https://github.com/Ynananan/CSE_Laplace_InverseLaplace_ME_4203_Group12_2024/assets/159511899/0c25f97f-75cb-4e1e-91aa-ad1f7af9c816)
 ![Remo, Kheben P  -Assignment 2 (#3)](https://github.com/Ynananan/CSE_Laplace_InverseLaplace_ME_4203_Group12_2024/assets/159511899/f0bd50cf-c5de-4378-b551-3d0ee9e967d4)
+
+Assignment 1
+Comia, Renz Leo L.
+![Comia, Renz Leo L _Assignment 1](https://github.com/Ynananan/CSE_Laplace_InverseLaplace_ME_4203_Group12_2024/assets/161393500/e630b22e-8303-49d6-b979-1d61657fc67b)
+
+Assignment 2
+Comia, Renz Leo L.
+![Comia, Renz Leo L _Assignment 2 3](https://github.com/Ynananan/CSE_Laplace_InverseLaplace_ME_4203_Group12_2024/assets/161393500/87987cb2-d056-4877-ae3c-30609cec6d63)
+![Comia, Renz Leo L _Assignment 2 2](https://github.com/Ynananan/CSE_Laplace_InverseLaplace_ME_4203_Group12_2024/assets/161393500/84797472-2d65-453f-b8d4-27d5904c5bad)
+![Comia, Renz Leo L,_Assignment 2 1](https://github.com/Ynananan/CSE_Laplace_InverseLaplace_ME_4203_Group12_2024/assets/161393500/e2d16228-c7c4-45e3-a0e0-98eb34a5bee4)
+
